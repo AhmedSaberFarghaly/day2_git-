@@ -1,1 +1,0 @@
-![cheese](https://www.pngall.com/cheese-png/download/1510)
